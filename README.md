@@ -5,3 +5,4 @@ sky mad nstm https://www.mediafire.com/file/wsp9ii0owkfmmp9/sky+nstm+chroma+mad.
 sb chromatic https://www.mediafire.com/file/ezp0qz2elzwgrzi/sb+chromatic.wav/file
 girl left chromatic https://www.mediafire.com/file/im52gkl1s2vs5df/chica+izquierda+chroma.wav/file
 girl right voice is school piano in fl studio plugin presents/generators/fl keys school piano
+Creator Kayito watyando chroma scale https://www.mediafire.com/file/6ja4uxclhiztivj/creator+kayito+watyando+chromatic+scale.wav/file
