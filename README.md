@@ -6,3 +6,4 @@ sb chromatic https://www.mediafire.com/file/ezp0qz2elzwgrzi/sb+chromatic.wav/fil
 girl left chromatic https://www.mediafire.com/file/im52gkl1s2vs5df/chica+izquierda+chroma.wav/file
 girl right voice is school piano in fl studio plugin presents/generators/fl keys school piano
 Creator Kayito watyando chroma scale https://www.mediafire.com/file/6ja4uxclhiztivj/creator+kayito+watyando+chromatic+scale.wav/file
+minus kayito new chromatic https://www.mediafire.com/file/wbj4jam9405wom9/minus+kayito+chroma.wav/file
