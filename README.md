@@ -7,3 +7,4 @@ girl left chromatic https://www.mediafire.com/file/im52gkl1s2vs5df/chica+izquier
 girl right voice is school piano in fl studio plugin presents/generators/fl keys school piano
 Creator Kayito watyando chroma scale https://www.mediafire.com/file/6ja4uxclhiztivj/creator+kayito+watyando+chromatic+scale.wav/file
 minus kayito new chromatic https://www.mediafire.com/file/wbj4jam9405wom9/minus+kayito+chroma.wav/file
+sky the Only fan https://www.mediafire.com/file/sajfop5mlxkxuai/sky+the+only+fanatic+chroma.wav/file
