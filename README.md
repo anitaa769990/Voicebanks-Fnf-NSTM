@@ -8,3 +8,4 @@ girl right voice is school piano in fl studio plugin presents/generators/fl keys
 Creator Kayito watyando chroma scale https://www.mediafire.com/file/6ja4uxclhiztivj/creator+kayito+watyando+chromatic+scale.wav/file
 minus kayito new chromatic https://www.mediafire.com/file/wbj4jam9405wom9/minus+kayito+chroma.wav/file
 sky the Only fan https://www.mediafire.com/file/sajfop5mlxkxuai/sky+the+only+fanatic+chroma.wav/file
+true form kayito angel https://www.mediafire.com/file/z4l29xei7j6yuh4/angel+true+form+kayito.wav/file
